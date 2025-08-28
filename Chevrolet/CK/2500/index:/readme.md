@@ -1,1 +1,2 @@
 - [1982 Chevrolet 2500 hd regular cab Long Bed $2,000](https://www.facebook.com/marketplace/item/738591892127199)
+- [1993 Chevrolet 2500 extended cab & chassis $1,000 Listed 4 weeks ago in Frankston, TX](https://www.facebook.com/marketplace/item/707595645483980)
