@@ -1,0 +1,1 @@
+- [1983 Chevrolet 2500 regular cab Long Bed $1,800 Listed 7 weeks ago in Fort Worth, TX](https://www.facebook.com/marketplace/item/1055245146743754)
