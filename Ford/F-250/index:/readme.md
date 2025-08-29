@@ -1,0 +1,2 @@
+- [2001 Ford f-250 Long Bed $2,000 Listed 2 days ago in Temple, TX](https://www.facebook.com/marketplace/item/1444290410023143)
+- [2003 Ford f-250 HD Long Bed $1,500 Listed 2 days ago in Lithonia, GA](https://www.facebook.com/marketplace/item/1165156042098909)
